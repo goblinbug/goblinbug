@@ -11,4 +11,4 @@ hello , hello | 21 | he/him
 
 ► Feel free to whisper to interact if you aren't sure I'm in game - I may be off tab occasionally
 <br>I generally don't tend to interact first but I'm open to any interaction ! feel free to strike conversation , boop without saying anything or sit behind me for a little rest. I don't mind
-► Feel free to draw whatever you'd like to on my strawpage , ask any questions on there or my atabook ! 
+<br>► Feel free to draw whatever you'd like to on my strawpage , ask any questions on there or my atabook ! 
