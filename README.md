@@ -2,7 +2,6 @@
 
 hello , hello | 21 | he/him 
 <br>I'm an artist that ocassionally hops on a silly little horse game and make characters I like.
-<br>leaves furry shit in strawpages like a dog randomly bringing in a dead animal 
 
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/27711c90-3160-4a98-9e79-889114e2e05d/dan09yo-c9be793c-99e7-48fd-a62b-7962c249ee55.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzI3NzExYzkwLTMxNjAtNGE5OC05ZTc5LTg4OTExNGUyZTA1ZFwvZGFuMDl5by1jOWJlNzkzYy05OWU3LTQ4ZmQtYTYyYi03OTYyYzI0OWVlNTUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.q3gX0mRor88UcrRRPjr3VWvwUMYr1xS5uztxMDlTs6A"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9593649b-9956-4a58-a332-85a193ef7f00/d8hdwmv-9b51005d-8d16-4f8a-bf4a-4b460389e630.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzk1OTM2NDliLTk5NTYtNGE1OC1hMzMyLTg1YTE5M2VmN2YwMFwvZDhoZHdtdi05YjUxMDA1ZC04ZDE2LTRmOGEtYmY0YS00YjQ2MDM4OWU2MzAucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.XAkF8SU9K-aXMDZaB_mvjSrLQmbgaaRkSeGy2m4C1e4">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e1615532-6aee-4e11-9b89-f75f6132fb96/dayyvi3-1642476c-9b42-4e38-9698-d649d6f57494.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNjE1NTMyLTZhZWUtNGUxMS05Yjg5LWY3NWY2MTMyZmI5NlwvZGF5eXZpMy0xNjQyNDc2Yy05YjQyLTRlMzgtOTY5OC1kNjQ5ZDZmNTc0OTQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0._D2Bk6zcucwGgzeBQeOGZ17hsYGQFm98923c5j1hQzc">
@@ -12,5 +11,5 @@ hello , hello | 21 | he/him
 
 ► Feel free to whisper to interact if you aren't sure I'm in game - I may be off tab occasionally
 <br>I generally don't tend to interact first but I'm open to any interaction ! feel free to strike conversation , boop without saying anything or sit behind me for a little rest. I don't mind
-<br>► Feel free to draw whatever you'd like to on my strawpage , ask any questions on there or my atabook !
+<br>► Feel free to draw whatever you'd like to on my strawpage or ask any questions!
 <br>► Ask for discord if you want to 
