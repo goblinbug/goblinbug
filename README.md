@@ -11,3 +11,5 @@ hello , hello
 <br>► i generally don't tend to interact first but I'm open to any interaction ! feel free to strike conversation , boop without saying anything or sit behind me for a little rest. I don't mind
 <br>► i appreciate any drawings and question sent to my strawpage or atabook!
 <br>► ask for discord if you want to 
+
+<img src="https://i.pinimg.com/originals/6b/78/4f/6b784f7449bdd697a31e0b7aa63e462c.gif">
