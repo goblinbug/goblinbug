@@ -10,7 +10,7 @@ hello , hello | 21 | he/him
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c89d1002-8ee8-401a-aae5-adc53a6b798b/daz5wt3-708b1dba-8ddb-4cc3-93ec-a711dc6babeb.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2M4OWQxMDAyLThlZTgtNDAxYS1hYWU1LWFkYzUzYTZiNzk4YlwvZGF6NXd0My03MDhiMWRiYS04ZGRiLTRjYzMtOTNlYy1hNzExZGM2YmFiZWIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.-vArwKMyGArPlg1ljb8VLwJY6DMpD27m0EKQEF5p7nI">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/64b757c5-8479-4ba5-8cdf-05603633063b/dcd8vlf-246ce594-8abd-49a9-9ab8-f14d3beb9457.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY0Yjc1N2M1LTg0NzktNGJhNS04Y2RmLTA1NjAzNjMzMDYzYlwvZGNkOHZsZi0yNDZjZTU5NC04YWJkLTQ5YTktOWFiOC1mMTRkM2JlYjk0NTcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.AHLmCCkV8Yy3RbNRsBD3cmU5296zIdG5LCb2pmNSYhM">
 
-► feel free to whisper to interact if you aren't sure I'm in game - I may be off tab occasionally
+► feel free to whisper to interact - I may be off tab occasionally
 <br>► i generally don't tend to interact first but I'm open to any interaction ! feel free to strike conversation , boop without saying anything or sit behind me for a little rest. I don't mind
 <br>► i appreciate any drawings and question sent to my strawpage or atabook!
 <br>► ask for discord if you want to 
