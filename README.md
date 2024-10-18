@@ -1,4 +1,4 @@
-<img src="[https://i.pinimg.com/originals/ff/34/3a/ff343aa8819c2573ad3409baf4af5e3e.gif](https://i.pinimg.com/originals/48/c2/8b/48c28b0be6165b011a329c2e5ffaaa7e.gif)"/>
+<img src="https://i.pinimg.com/originals/48/c2/8b/48c28b0be6165b011a329c2e5ffaaa7e.gif"/>
 
 hello , hello | 21 | he/him 
 <br> an artist that ocassionally hops on a silly little horse game and makes characters he likes.
