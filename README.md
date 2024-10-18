@@ -1,7 +1,7 @@
 <img src="https://i.pinimg.com/originals/48/c2/8b/48c28b0be6165b011a329c2e5ffaaa7e.gif"/>
 
 hello , hello 
-21 | he/him 
+<br>| queer | 21 | he/him |
 <br> an artist that ocassionally hops on a silly little horse game and makes characters he likes.
 <br> i will leave furry shit in your strawpage if i think you're cool like a dog dragging random bones from the woods , think of it as a compliment 
 
