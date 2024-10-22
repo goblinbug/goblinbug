@@ -10,8 +10,8 @@ Hello , Hello
 ► Feel free to whisper to interact - I may be off tab occasionally
 <br>► I generally don't tend to interact first but I'm open to any interaction ! feel free to strike conversation , boop without saying anything or sit behind me for a little rest. I don't mind
 <br>► I appreciate any drawings and question sent to my strawpage or atabook!
-<br>► ask for discord if you want to 
+<br>► ask for discord / steam or whatever else if you want to 
 
 <img src="https://i.pinimg.com/originals/6b/78/4f/6b784f7449bdd697a31e0b7aa63e462c.gif">
 
-<br>► I'm a huge media nerd and pretty much always looking for recommendations - I have an extensive list already but you are absolutely encouraged to hit me up if you think i'll enjoy something , nothing is off the table. 
+<br>► I'm a huge media nerd and pretty much always looking for recommendations - I have an extensive list already but you are absolutely encouraged to hit me up if you think i'll enjoy something , nothing is off the table. - You can check the listography linked here for some of the stuff I have seen and enjoyed but i kept some stuff out of it lol.
