@@ -14,5 +14,5 @@ Hello , Hello
 
 <img src="https://i.pinimg.com/originals/6b/78/4f/6b784f7449bdd697a31e0b7aa63e462c.gif">
 
-<br>► I'm pretty much always looking for more media recommendations - hit me up if you think i'll enjoy something , nothing is off the table. 
+<br>► I'm pretty much always looking for media recommendations - hit me up if you think i'll enjoy something , nothing is off the table. 
 <br>► You can check the listography linked here for the stuff I have seen and enjoyed but i kept some stuff out of it lol.
