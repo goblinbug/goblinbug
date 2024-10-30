@@ -17,4 +17,4 @@ Hello , Hello
 <br>► pretty much always looking for media recommendations - hit me up if you think i'll enjoy something , nothing is off the table. 
 <br>► you can check the listography linked here for the stuff I have seen and enjoyed but i kept some stuff out of it lol.
 
-<img src="https://komarev.com/ghpvc/?username=goblinbug&style=flat&color=yellowgreen" alt="Profile View Counter" />
+<img src="https://komarev.com/ghpvc/?username=goblinbug&style=flat&color=yellowgreen" alt="Profile View Counter">
