@@ -9,7 +9,7 @@ Hello , Hello
 
 ► feel free to whisper to interact - I may be off tab occasionally
 <br>► generally don't tend to interact first but I'm open to any interaction ! 
-<br>► i appreciate any drawings and question sent to my strawpage or atabook!
+<br>► i appreciate any drawings and questions sent to my strawpage or atabook!
 <br>► ask for discord / steam or whatever else if you want to 
 
 <img src="https://i.pinimg.com/originals/6b/78/4f/6b784f7449bdd697a31e0b7aa63e462c.gif">
