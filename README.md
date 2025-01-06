@@ -10,7 +10,6 @@ Hello , Hello | 22
 <br>► generally don't tend to interact first but I'm open to any interaction ! 
 <br>► i appreciate any drawings and questions sent to my strawpage or atabook!
 <br>► ask for discord / steam or whatever else if you want to 
-<br>► listography linked is for interests and such
 
 <img src="https://i.pinimg.com/originals/6b/78/4f/6b784f7449bdd697a31e0b7aa63e462c.gif">
 <img src="https://komarev.com/ghpvc/?username=goblinbug&style=flat&color=yellowgreen" alt="Profile View Counter">
