@@ -1,6 +1,6 @@
 <img src="https://i.pinimg.com/originals/48/c2/8b/48c28b0be6165b011a329c2e5ffaaa7e.gif"/>
 
-Hello , Hello | 22
+<b>Hello , Hello | 22 | He/Him</b>
 <br> an artist that sits on a silly little horse game and makes characters he likes.
 <br> i may leave furry doodles in your strawpage if i think you're cool , think of it as a compliment 
 
@@ -12,4 +12,6 @@ Hello , Hello | 22
 <br>► ask for discord / steam or whatever else if you want to 
 
 <img src="https://i.pinimg.com/originals/6b/78/4f/6b784f7449bdd697a31e0b7aa63e462c.gif">
-<img src="https://komarev.com/ghpvc/?username=goblinbug&style=flat&color=yellowgreen" alt="Profile View Counter">
+<a href="https://www.last.fm/user/goblinbug"><img src="https://lastfm-recently-played.vercel.app/api?user=goblinbug&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=151B1C" alt="what">
+  
+<br><img src="https://komarev.com/ghpvc/?username=goblinbug&style=flat&color=yellowgreen" alt="Profile View Counter">
