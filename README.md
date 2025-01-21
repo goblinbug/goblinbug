@@ -1,6 +1,6 @@
 <img src="https://i.pinimg.com/originals/48/c2/8b/48c28b0be6165b011a329c2e5ffaaa7e.gif"/>
 
-<b>Hello , Hello | 22 </b>
+<b>he/him | queer | 22 </b>
 <br> an artist that sits on a silly little horse game and makes characters he likes.
 <br> i may leave furry doodles in your strawpage if i think you're cool , think of it as a compliment 
 
