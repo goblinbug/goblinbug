@@ -9,6 +9,5 @@
 ► feel free to whisper to interact just in case i'm off-tab
 <br>► generally don't tend to interact first but I'm open to any interaction ! 
 <br>► i appreciate any drawings and questions sent to my strawpage or atabook!
-<br>► ask for discord / steam or whatever else if you want to 
-  
+<br>► ask for discord / steam or whatever else if you want to  
 <br><img src="https://komarev.com/ghpvc/?username=goblinbug&style=flat&color=yellowgreen" alt="Profile View Counter">
