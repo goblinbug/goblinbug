@@ -10,8 +10,5 @@
 <br>► generally don't tend to interact first but I'm open to any interaction ! 
 <br>► i appreciate any drawings and questions sent to my strawpage or atabook!
 <br>► ask for discord / steam or whatever else if you want to 
-
-<img src="https://i.pinimg.com/originals/6b/78/4f/6b784f7449bdd697a31e0b7aa63e462c.gif">
-<a href="https://www.last.fm/user/goblinbug"><img src="https://lastfm-recently-played.vercel.app/api?user=goblinbug&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=151B1C" alt="what">
   
 <br><img src="https://komarev.com/ghpvc/?username=goblinbug&style=flat&color=yellowgreen" alt="Profile View Counter">
