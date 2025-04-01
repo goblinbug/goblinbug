@@ -9,5 +9,4 @@
 <br>► generally don't tend to interact first but I'm open to any interaction
 <br>► i appreciate any drawings and questions sent to my strawpage or atabook!
 
-<img src="https://64.media.tumblr.com/6a01043964d6240e95c0c6dd5e0c6d89/fe85e9af44640701-4b/s2048x3072/c1b213fd3c0312997677e05dca9fb9d194301e9c.pnj"  width="600"/>
 <img src="https://komarev.com/ghpvc/?username=goblinbug&style=flat&color=yellowgreen" alt="Profile View Counter">
