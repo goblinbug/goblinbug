@@ -2,3 +2,4 @@
 Indefinite break. It's nothing personal.
 <br>I wish everyone the best. Stay safe out there! ^^
 
+<br> ![](https://komarev.com/ghpvc/?username=goblinbug&color=746D46)
